@@ -7,7 +7,7 @@
 
 ![](https://github.com/user-attachments/assets/d242b74b-e3cf-4b3b-a46f-acfc47df6171) 
 ♡ // "Let's do our very, very, veeeery best!” — Hanasato Minori
-still thinking what to put her ok
+. still thinking what to put her ok
 ![](https://github.com/user-attachments/assets/f67986d8-9669-485c-90b0-aa22395281f0) 
 
 ![](https://github.com/user-attachments/assets/7d3cb0ad-0e1c-4b5b-994d-aff2d4244fae) 
