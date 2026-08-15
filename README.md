@@ -1,4 +1,4 @@
-*(holyshit my hand hurts ok make sure you um name ur readme as like,,, the same name as ur github name otherwise it wont show up on ur profile ok remove this when editing)*
+
 
 
 ![](https://github.com/user-attachments/assets/766f822c-ba9f-4dce-b972-1d0e6c36a759) 
