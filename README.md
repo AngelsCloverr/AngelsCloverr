@@ -13,9 +13,5 @@ Byi, I might come off as dry but once we are more close I act more myself. C+H i
 ![](https://github.com/user-attachments/assets/f67986d8-9669-485c-90b0-aa22395281f0) 
 
 ![](https://github.com/user-attachments/assets/7d3cb0ad-0e1c-4b5b-994d-aff2d4244fae) 
-
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=314er2fasdahz674yn6flffsrcey&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=314er2fasdahz674yn6flffsrcey&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=true&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
-  </a>
-</p>
+
