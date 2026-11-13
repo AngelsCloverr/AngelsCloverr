@@ -10,7 +10,7 @@
 
 Byi, I might come off as dry but once we are more close I act more myself. C+H is encouraged but if I’m with my friends or have dni (dniuf, dniucf, dniuparty, dniuid) then please respect it. well feel free to int with me just don’t be rude, zip’s out!
 
-[Pronouns CC](https://pronouns.cc/@MoreJumpMore) [EN Pronouns](https://en.pronouns.page/@zippytie)
+[Pronouns CC](https://pronouns.cc/@MoreJumpMore)  [EN Pronouns](https://en.pronouns.page/@zippytie)  [Spotify](https://open.spotify.com/user/314er2fasdahz674yn6flffsrcey?si=df6773f0d3e84f3c)
 ![](https://github.com/user-attachments/assets/f67986d8-9669-485c-90b0-aa22395281f0) 
 
 ![](https://github.com/user-attachments/assets/7d3cb0ad-0e1c-4b5b-994d-aff2d4244fae) 
