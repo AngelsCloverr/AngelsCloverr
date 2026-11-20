@@ -8,7 +8,7 @@
 ![](https://github.com/user-attachments/assets/d242b74b-e3cf-4b3b-a46f-acfc47df6171) 
 ♡ // "Let's do our very, very, veeeery best!” — Hanasato Minori
 
-Byi, I might come off as dry but once we are more close I act more myself. C+H is encouraged but if I’m with my friends or have dni (dniuf, dniucf, dniuparty, dniuid) then please respect it. well feel free to int with me just don’t be rude, zip’s out!
+Byi! I might come off as dry but once we are more close I act more myself. C+H is encouraged but if I’m with my friends or have dni (dniuf, dniucf, dniuparty, dniuid) then please respect it. well feel free to int with me just don’t be rude, zip out!!
 
 [Pronouns CC](https://pronouns.cc/@MoreJumpMore)  [EN Pronouns](https://en.pronouns.page/@zippytie)  [Spotify](https://open.spotify.com/user/314er2fasdahz674yn6flffsrcey?si=df6773f0d3e84f3c)
 ![](https://github.com/user-attachments/assets/f67986d8-9669-485c-90b0-aa22395281f0) 
